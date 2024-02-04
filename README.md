@@ -1,1 +1,1 @@
-Em breve será postado uma descrição mais precisa
+Em breve será postado uma descrição mais precisa sobre o projeto
